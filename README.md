@@ -1,4 +1,5 @@
-Nombre completo: Gersson Andrey Valencia Silva
+Nombre: Gersson Andrey 
+Apellido: Valencia Silva
 Código: 408158
 Correo: gerssonvalenciasilva@gmail.com - gersson.valencia01@unicatolica.edu.co
-Enlace al video: https://youtu.be/Pg68RWdQJ54 - https://youtu.be/Pg68RWdQJ54?si=LiZLtf5Dzb8_xAcm
+Enlace al video: https://drive.google.com/file/d/17YTIS4s4X_xKu5YIVJGgcvZeHvtJa36V/view?usp=sharing
